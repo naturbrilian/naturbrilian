@@ -1,7 +1,7 @@
 # NaturBrilian's About
 ## About Me
 
-A Vector Maker, Design, Translator & Motion Graphics.
+Vector Maker, Design, Translator & Motion Graphics.
 My hobbies are listening to some Music & Radio, playing games like Taiko, Priconne, Visual Novels & Memento Mori.
 
 Working as a video editor at Koentji Cinema / Kediri Televisi.
