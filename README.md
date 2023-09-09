@@ -2,7 +2,7 @@
 ## About Me
 
 Vector Maker, Design, Translator & Motion Graphics.
-My hobbies are listening to some Music & Radio, playing games like Taiko, Priconne, Visual Novels & Memento Mori.
+My hobbies are listening to some Music & Radio, playing games like Taiko, Priconne, Visual Novels, Blue Archive & Memento Mori.
 
 Working as a video editor at Koentji Cinema / Kediri Televisi.
 Translator Checker at Nanako Translation Project & Founder Gingalibadeidara Works.
@@ -11,7 +11,7 @@ Discord Admin at Yurasu Fansubs and 22/7 Indonesia Community
 If you want to contact me, just contact me at :
 
 - Twitter: @naturbrilian
-- Facebook: Lieba Natur Brilian (naturbrilian28)
+- Messenger: Lieba Natur Brilian (naturbrilian28)
 - Discord: naturbrilian or join my server: https://discord.gg/Bz9YuXs9S3
 
 <!--
