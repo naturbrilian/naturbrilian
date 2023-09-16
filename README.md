@@ -14,9 +14,8 @@ If you want to contact me, just contact me at :
 - Messenger: Lieba Natur Brilian (naturbrilian28)
 - Discord: naturbrilian or join my server: https://discord.gg/Bz9YuXs9S3
 
-## My Discord Activity (for temporary im using 2nd account)
-[![Discord Presence](https://lanyard.cnrad.dev/api/1040278570485952592)](https://discord.com/users/1040278570485952592)
-
+## My Discord Activity
+[![Discord Presence](https://lanyard.cnrad.dev/api/304313603253862401)](https://discord.com/users/304313603253862401)
 <!--
 **naturbrilian/naturbrilian** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
