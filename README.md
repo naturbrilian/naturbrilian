@@ -2,7 +2,7 @@
 ## About Me
 
 Vector Maker, Design, Translator & Motion Graphics.
-My hobbies are listening to some Music & Radio, playing games like Taiko, Priconne, Visual Novels, Blue Archive & Memento Mori.
+My hobbies are listening to some Music & Radio, playing games like Taiko, Mobile rythm game, Priconne, Visual Novels, Blue Archive & Memento Mori.
 
 Working as a video editor at Koentji Cinema / Kediri Televisi.
 Translator Checker at Nanako Translation Project & Founder Gingalibadeidara Works.
