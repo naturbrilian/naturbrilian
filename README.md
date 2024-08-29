@@ -8,6 +8,8 @@ Working as a video editor at Koentji Cinema / Kediri Televisi.
 Translator Checker at Nanako Translation Project & Founder Gingalibadeidara Works.
 Discord Admin at Yurasu Fansubs and 22/7 Indonesia Community. Designer & Website Admin at Hana Fansubs.
 
+I using Github also for archiving my theme i create before & translation project on here
+
 If you want to contact me, just contact me at :
 
 - Twitter: @naturbrilian
