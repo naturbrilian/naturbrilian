@@ -14,7 +14,7 @@ If you want to contact me, just contact me at :
 
 - Twitter: @naturbrilian
 - Messenger: Lieba Natur Brilian (naturbrilian28) | Currently inactive until January
-- Discord: naturbrilian or join my server: https://short.naturbrilian.my.id/discord
+- Discord: naturbrilian or join my server: https://go.naturbrilian.my.id/discord
 
 ## My Discord & Listening Activity
 [![Discord Presence](https://lanyard.cnrad.dev/api/304313603253862401)](https://discord.com/users/304313603253862401)
