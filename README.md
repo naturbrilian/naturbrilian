@@ -13,7 +13,7 @@ I using Github also for archiving my theme i create before & translation project
 If you want to contact me, just contact me at :
 
 - Twitter: @naturbrilian
-- Messenger: Lieba Natur Brilian (naturbrilian28) | Currently inactive until January
+- Messenger: Lieba Natur Brilian (naturbrilian28) | Active but slow respon because messenger notifications
 - Discord: naturbrilian or join my server: https://go.naturbrilian.my.id/discord
 
 ## My Discord & Listening Activity
