@@ -14,7 +14,7 @@ If you want to contact me, just contact me at :
 
 - Twitter: @naturbrilian
 - Messenger: Lieba Natur Brilian (naturbrilian) | Active but slow respon because messenger notifications
-- Discord: naturbrilian or join my server: https://naturbrilian.great-site/discord-server
+- Discord: naturbrilian or join my server: https://naturbrilian.great-site.net/discord-server
 
 ## My Discord & Listening Activity
 ![My Scrobbles](https://lastfm-recently-played.vercel.app/api?user=naturbrilian) [![Discord Presence](https://lanyard.cnrad.dev/api/304313603253862401)](https://discord.com/users/304313603253862401)
