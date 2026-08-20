@@ -19,7 +19,7 @@ If you want to contact me, just contact me at :
 - Discord: naturbrilian or join my server: https://naturbrilian.great-site.net/discord-server
 
 ## My Discord & Listening Activity
-[![Last.fm recently played](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=naturbrilian) [![Discord Presence](https://lanyard.cnrad.dev/api/304313603253862401)](https://discord.com/users/304313603253862401)
+[![Last.fm recently played](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=naturbrilian)](https://www.last.fm/user/naturbrilian) [![Discord Presence](https://lanyard.cnrad.dev/api/304313603253862401)](https://discord.com/users/304313603253862401)
 <!--
 **naturbrilian/naturbrilian** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
